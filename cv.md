@@ -26,3 +26,35 @@ Faculty: Economics and management at the enterprise.
 
 
 Faculty: Operation and repair of railway machines.
+
+## PROFESSIONAL EXPERIENCE
+
+**August 2015 — July 2022 - "Avtoset" LvLTD.**
+
+Position: Sales Specialist / Deputy Head of Sales Department.
+
+Job responsibilities: selling goods, expanding the customer base, cold calls, participating in tenders, participating in shaping the company's image, working with receivables, managing the sales department, increasing the conversion of calls from sales department employees, setting standards for the work of sales department employees and monitoring their implementation , market monitoring and pricing of the company in its direction.
+
+
+**August 2014 - June 2015 - "Metallprofil" LLC.**
+
+Position: Active Sales Specialist.
+
+Job responsibilities: searching for new customers, measuring and calculating the need for materials, concluding contracts, monitoring the implementation of the terms of the contract.
+
+
+**June 2012 - July 2014 - branch of "Tabak-invest" LLC  Brest shopping center "Korona".**
+
+Position: sales assistant in the department of household appliances.
+
+Job responsibilities: identifying the needs of customers, assistance in the selection of equipment, merchandising, primary service when applying for a warranty.
+
+
+**March 2011 - June 2012 - "Belschettekhnika" JSC.**
+
+Position: gantry crane operator / slinger.
+
+
+**July 2010 - March 2011 - "SMP No.678" JSC.**
+
+Position: gantry crane operator.
